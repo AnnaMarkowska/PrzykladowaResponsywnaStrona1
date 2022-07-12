@@ -1,0 +1,1 @@
+# PrzykladowaResponsywnaStrona1
